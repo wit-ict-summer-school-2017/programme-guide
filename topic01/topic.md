@@ -1,3 +1,3 @@
-Schedule
+Schedule + Guidebook
 
-A schedule for the Summer School
+Objectives, Arrangements and schedule for the Summer School Programme
